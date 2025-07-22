@@ -1,1 +1,1 @@
-# Link này bỉ do bị hư
+# Link này bỏ do bị hư
